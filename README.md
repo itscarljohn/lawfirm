@@ -1,5 +1,5 @@
 <h1>Expert Employment Lawyer in Edmonton | Your Rights Matter</h1>
-<p>Employment law is a vital area that governs the relationship between employers and employees. In Edmonton, navigating this complex legal landscape can be challenging, especially when facing issues like wrongful dismissal, workplace harassment, or contract disputes. This is where an <a href="https://abougoushlaw.com/"><strong>employment lawyer in Edmonton</strong></a> becomes essential.</p>
+<p>Employment law is a vital area that governs the relationship between employers and employees. In Edmonton, navigating this complex legal landscape can be challenging, especially when facing issues like wrongful dismissal, workplace harassment, or contract disputes. This is where an <a href="https://abougoushlaw.com/"><strong>employment lawyer edmonton</strong></a> becomes essential.</p>
 
 <h2>What Does an Employment Lawyer Do?</h2>
 <p>An employment lawyer specializes in various aspects of employment law, including:</p>
